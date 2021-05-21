@@ -4,6 +4,5 @@
 ### I have no skills and no motivation
 ## But maybe I'll get by just find via gyrating
 
-- Dick and balls
 - I am a dirty child
 - I kinda don't know what I'm doing
