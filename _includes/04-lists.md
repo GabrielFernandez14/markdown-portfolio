@@ -3,3 +3,4 @@
 - Happiness
 - Hollow Knight content
 - Depression
+- Sadness
